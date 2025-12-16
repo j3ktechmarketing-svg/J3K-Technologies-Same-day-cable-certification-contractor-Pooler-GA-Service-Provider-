@@ -3,9 +3,6 @@
 
 
 ---
-
-## Introduction
-
 In today’s fast-moving business and education environments, reliable network cabling is not optional-it’s essential. From commercial facilities to coastal operations and school campuses, properly tested and certified cabling ensures performance, safety, and long-term scalability. J3K Technologies delivers professional off-page cabling support backed by years of hands-on industry experience, serving organizations across Georgia with speed, precision, and accountability.
 
 As a trusted Service Provider, Installation Partner, and Contractor, we help clients meet compliance requirements, reduce downtime, and maintain dependable network infrastructure.
